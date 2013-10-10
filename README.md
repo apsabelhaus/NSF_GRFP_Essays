@@ -8,4 +8,7 @@ Apparently the NSF changed this to just two essays this upcoming year (nixing th
 This is the PDF that I sent directly in to the NSF, with this formatting - I got the trick of bolding key words and separating out paragraphs from another friend who also got a GRF.
 
 Good luck! Feel free to reach out if you'd like more resources.
+
 -Drew
+
+Licensed under Creative Commons Attribution License (too lazy to find the actual file.) But seriously, please don't copy any of the text word-for-word, that would make you a Bad Person.
